@@ -31,9 +31,9 @@ My goal is to become a successful professional who uses creativity, innovation, 
 ---
 
 ## 🌍 Connect With Me
-- 📧 Email: youremail@example.com
-- 📱 Instagram: @yourusername
-- 💼 LinkedIn: linkedin.com/in/yourusername
+- 📧 Email:N'mahseraykamara2006@gmail.com
+- 📱 Instagram:N'mah Seray Kamara 
+   
 
 ---
 
